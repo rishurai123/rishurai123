@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **raishailendra96@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/shailendra-kumar-rai-b26a5124b/</h3>
 <p align="left">
 </p>
 
